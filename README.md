@@ -8,7 +8,7 @@
 
 下午的课程从Meeting和Feedback两方面针对上午的内容以关键字的形式给出了总结如图所示，
 加强了我对项目沟通的认识。
-：![Keywords](http://photo.weibo.com/3026003563/wbphotos/large/mid/3913384867436548/pid/b45d266bjw1eye75bm6jdj21kw16ojzu)
+![Keywords](IMG_1132.JPG)
 同时学习了如何正确的给别人做Feedback：
 
 >我观察到...我感觉...你觉得呢？
